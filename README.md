@@ -2,6 +2,8 @@
 
 Live: https://aryanrhmn.github.io/mrmojorisinx-wiki/
 
-Curated pilot from Mojo ([@MrMojoRisinX](https://x.com/MrMojoRisinX)) — investment process (research ≠ process), sizing, activism craft, portfolio risk, and career norms.
+Expanded personal archive of public posts from Mojo ([@MrMojoRisinX](https://x.com/MrMojoRisinX)).
 
-Personal archive; author retains copyright.
+**Focus:** investment process, portfolio construction, risk framing, activism, corporate-action craft.
+
+**Not:** endorsement of any view, position, security, or counterparty. Neutral offline reference only. Author retains copyright.
